@@ -1,0 +1,1 @@
+# noval-mo-cepat-selesai
